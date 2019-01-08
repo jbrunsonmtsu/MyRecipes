@@ -22,3 +22,5 @@
 2. Make the cranberry sauce: Rinse the cranberries and toss any squishy ones. In a large, heavy-bottomed saucepan, bring ½ cup water, honey, cinnamon, cloves and allspice to a gentle boil. Add the cranberries and cook, stirring frequently, for about 3 minutes or until the cranberries have popped and the sauce is starting to look, well, saucy. Remove from heat and stir in about two-thirds of the orange zest.
 
 3. Assemble the crostini: Top each slice of toast with a generous spread of cheese, then cranberry sauce and a light sprinkle of orange zest. Serve.
+
+<a href="https://cookieandkate.com/2013/cranberry-crostini/">Source</a>
