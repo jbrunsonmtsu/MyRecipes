@@ -13,6 +13,7 @@
 * ¼ teaspoon ground cloves
 * ¼ teaspoon ground allspice
 * 1 (12-ounce) bag fresh cranberries
+* 3-ounces crushed pinapple
 * Zest of 1 orange (orange part only), divided
 
 **INSTRUCTIONS**
