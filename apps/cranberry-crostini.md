@@ -5,7 +5,6 @@
 * 1 small loaf of artisan whole grain bread, sliced into ½-inch thick slices
 * 2+ tablespoons olive oil
 * sea salt
-* 10 ounces goat cheese, preferably at room temperature (Brie, ricotta, or cream cheese would be fine substitutes)
 
 **Cranberry orange sauce**
 * ½ cup+ honey
